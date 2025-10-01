@@ -1,0 +1,61 @@
+# Australia vs New Zealand Live Score, Women's World Cup 2025
+
+Left-arm spinner **Sophie Molineux** has returned to Australia’s playing XI for the first time since her **knee surgery**. Captain **Alyssa Healy** won the toss and chose to **bat first** in their 2025 Women’s ODI World Cup opener against New Zealand at the Holkar Stadium on Wednesday.
+
+Molineux’s inclusion means **veteran pacer Megan Schutt misses out**, with Australia opting for the **raw pace of Darcie Brown** alongside **Kim Garth**. The seven-time world champions and defending title holders aim to **start their campaign strongly** in what is also the venue’s **first-ever women’s international match**.
+
+**Healy said at the toss:**  
+"Just put some runs on the board and see what happens. The group is in a great place. We're looking at getting better at every single opportunity. We want to **improve and take women's cricket forward**."
+
+New Zealand, meanwhile, are playing their **first ODI in six months**. Captain **Sophie Devine** admitted she would have preferred to **bat first**, but remained **optimistic** about her team’s chances.  
+"But fresh wicket, start of the tournament, not very concerned. I think we've got a **great balance within the side**, with experienced players like **Suzie Bates** and **Georgia Plimmer**," she said.
+
+## Australia Playing XI
+
+**Alyssa Healy** (capt & wk), **Phoebe Litchfield**, **Ellyse Perry**, **Beth Mooney**, **Annabel Sutherland**, **Ashleigh Gardner**, **Tahlia McGrath**, **Sophie Molineux**, **Alana King**, **Kim Garth**, **Darcie Brown**
+
+## Key Highlights
+
+- **Sophie Molineux returns** to the squad  
+- **Australia bats first**  
+- **Megan Schutt misses out** due to Molineux's inclusion  
+- **New Zealand plays first ODI in six months**  
+- **Alyssa Healy focuses on improvement and growth of women's cricket**  
+- **Venue hosts its first-ever women’s international match**
+
+## Match Context
+
+Australia is looking to **start their campaign on a strong note** after being seven-time champions. New Zealand, on the other hand, will be testing their squad’s **form and experience** after a long break from ODIs.  
+
+### Statements from Players
+
+**Alyssa Healy (Australia)**:  
+"Just put some runs on the board and see what happens. The group is in a great place. We're looking to improve at every opportunity."
+
+**Sophie Devine (New Zealand)**:  
+"But fresh wicket, start of the tournament, not very concerned. I think we've got a **great balance within the side** with experienced players like **Suzie Bates** and **Georgia Plimmer**."
+
+## Strategies
+
+Australia is focusing on **strong batting start** and using the **new pace duo of Darcie Brown and Kim Garth**.  
+New Zealand is relying on **experienced batters** and hopes to **adapt quickly to the pitch conditions**.
+
+## Live Score and Updates
+
+For live updates and scores, check [Australia vs New Zealand Live Score](https://github.com/SSO-ID-LOGIN/.github/blob/main/README.md).  
+
+Stay updated with match details here: [Women's World Cup Live Score](https://github.com/SSO-ID-LOGIN/.github/blob/main/README.md).
+
+## Summary
+
+- **Sophie Molineux makes comeback**  
+- **Australia bats first**  
+- **New Zealand plays first ODI in six months**  
+- **Strong balance of players in both teams**  
+- **Venue hosts its first-ever women's international match**  
+- **Live score updates available online**
+
+This match sets the stage for **Women's World Cup 2025**, and both teams aim to **start their campaign positively**.
+
+https://github.com/SSO-ID-LOGIN-RAJASTHAN
+https://github.com/SSO-ID-LOGIN/.github/blob/main/README.md
